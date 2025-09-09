@@ -4,7 +4,7 @@ pubDatetime: 2025-08-18
 modDatetime: 2025-08-18
 title: "La història d’en Garrinet: el guardià del somriure saludable"
 ogImage: https://raw.githubusercontent.com/rosaescolano/h-blog/main/public/assets/garrinet.webp
-slug: 2025-08-09-la-historia-den-garrinet-el-guardia-del-somriure-saludable
+slug: 2025-09-09-la-historia-den-garrinet-el-guardia-del-somriure-saludable
 featured: false
 draft: false
 description: En un petit racó de Catalunya, on les muntanyes es troben amb el
