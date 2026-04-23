@@ -17,7 +17,7 @@ Since he was little, Garrinet was always a curious piglet, with a bright smile a
 
 With his doctor’s coat, his giant toothbrush, and his round glasses, Garrinet became the **ambassador of oral health**. He wasn’t just a friendly face, but also a tireless educator who traveled all around Catalonia to teach children (and grown-ups too) how to brush their teeth properly, avoid harmful sweets, and care for their oral hygiene with passion.
 
-Garrinet soon joined the **Associació d'Higienistes Bucodentals de Catalunya (HIDEs Catalunya)**, a group of experts committed to promoting dental health. Together, they began organizing workshops and campaigns to raise awareness about the importance of regular dental check-ups and maintaining healthy habits for a radiant smile.
+Garrinet soon joined the **Associació dels Professionals d'Higienistes Bucodentals de Catalunya (APHICAT)**, a group of experts committed to promoting dental health. Together, they began organizing workshops and campaigns to raise awareness about the importance of regular dental check-ups and maintaining healthy habits for a radiant smile.
 
 With his presence, Garrinet won everyone’s affection. Always accompanied by his unmistakable smile and his enthusiasm for teaching, he became a symbol of **prevention and dental care**. In every city and town he visited, people laughed, learned, and most importantly, started taking better care of their teeth!
 
