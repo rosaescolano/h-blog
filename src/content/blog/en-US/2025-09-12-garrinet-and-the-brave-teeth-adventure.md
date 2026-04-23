@@ -14,15 +14,15 @@ description: "After traveling all across Catalonia sharing tips about oral
 ---
 ## 🐷 **Garrinet and the Brave Teeth Adventure** 🦷
 
-After traveling all across Catalonia sharing tips about oral hygiene, **Garrinet** decided to take his mission one step further. That’s when **HIDES Catalunya** gave him a very special offer: to become the **official dental hygienist for schools**.
+After traveling all across Catalonia sharing tips about oral hygiene, **Garrinet** decided to take his mission one step further. That’s when **APHICAT** gave him a very special offer: to become the **official dental hygienist for schools**.
 
 —“Garrinet, your passion and joy have inspired hundreds of children. What do you think about joining our educational team?” —they asked with a big smile.
 
 Garrinet didn’t hesitate for a second. He put on his red beret, adjusted his round glasses, and with his giant toothbrush in hand, started visiting classrooms full of curious students. Everywhere he went, he gathered the children and excitedly said:
 
-> —“Hello! I’m part of **HIDES Catalunya**, and my job is to teach you healthy hygiene habits. That way, your teeth won’t get sick!”
+> —“Hello! I’m part of **APHICAT**, and my job is to teach you healthy hygiene habits. That way, your teeth won’t get sick!”
 
-The children listened carefully as Garrinet showed them how to brush in gentle circles, how to use dental floss like an invisible ninja between their teeth, and what foods helped strengthen their enamel. He even created a card game called _“The Brave Teeth”_, where players fought off evil bacteria using good habits.
+The children listened carefully as Garrinet showed them how to brush in gentle circles, how to use dental floss like an invisible ninja between their teeth, and what foods helped strengthen their enamel. He even created a card game called *“The Brave Teeth”*, where players fought off evil bacteria using good habits.
 
 One day, at a school in the small town of **Riudarenes**, a boy named **Pau** raised his hand and asked:
 
@@ -39,3 +39,4 @@ Over time, the results began to show. In the schools Garrinet visited, dental re
 And so, **Garrinet continues his journey**, with a backpack full of toothbrushes, stories, and a love for teaching. Because he knows that good oral hygiene doesn’t just prevent disease—it also gives something very special:
 
 > **The confidence to smile at the world without fear!** 😁
+
