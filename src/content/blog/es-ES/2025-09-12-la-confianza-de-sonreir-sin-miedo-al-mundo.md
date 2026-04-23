@@ -14,15 +14,15 @@ description: "Después de recorrer Cataluña de punta a punta compartiendo
 ---
 ### **Garrinet y la Aventura de los Dientes Valientes** 🦷🐷
 
-Después de recorrer Cataluña de punta a punta compartiendo consejos sobre higiene bucal, Garrinet decidió llevar su misión un paso más allá. Fue entonces cuando HIDES Catalunya le pidió algo muy especial: convertirse en el **higienista dental oficial de las escuelas**.
+Después de recorrer Cataluña de punta a punta compartiendo consejos sobre higiene bucal, Garrinet decidió llevar su misión un paso más allá. Fue entonces cuando APHICAT le pidió algo muy especial: convertirse en el **higienista dental oficial de las escuelas**.
 
 —“Garrinet, tu pasión y alegría han inspirado a cientos de niños. ¿Qué te parece si ahora formas parte de nuestro equipo educativo?” —le propusieron con una gran sonrisa.
 
 Garrinet no lo dudó ni un segundo. Se colocó su boina roja, ajustó sus gafas redondas y, con su cepillo gigante en mano, empezó a visitar aulas llenas de curiosos estudiantes. A cada lugar que iba, reunía a los niños y les decía con entusiasmo:
 
-> —“Hola! Formo part de HIDES Catalunya, i la meva feina serà educar-vos en els vostres hàbits d’higiene. Així les vostres dents no emmalaltiran!”
+> —“Hola! Formo part de APHICAT, i la meva feina serà educar-vos en els vostres hàbits d’higiene. Així les vostres dents no emmalaltiran!”
 
-Los niños escuchaban atentos mientras Garrinet les mostraba cómo cepillarse en círculos suaves, cómo usar el hilo dental como un ninja invisible entre los dientes, y qué alimentos ayudaban a fortalecer el esmalte dental. Incluso creó un juego de cartas llamado _“Els Dents Valents”_, donde los jugadores luchaban contra las bacterias malvadas con buenos hábitos.
+Los niños escuchaban atentos mientras Garrinet les mostraba cómo cepillarse en círculos suaves, cómo usar el hilo dental como un ninja invisible entre los dientes, y qué alimentos ayudaban a fortalecer el esmalte dental. Incluso creó un juego de cartas llamado *“Els Dents Valents”*, donde los jugadores luchaban contra las bacterias malvadas con buenos hábitos.
 
 Un día, en una escuela del pequeño pueblo de Riudarenes, un niño llamado Pau levantó la mano y preguntó:
 
@@ -39,3 +39,4 @@ Con el paso del tiempo, los resultados comenzaron a notarse. En las escuelas que
 Y así, **Garrinet continúa su viaje**, con una mochila llena de cepillos, cuentos, y cariño por enseñar. Porque él sabe que una buena higiene bucal no solo previene enfermedades, sino que también regala algo muy especial:
 
 > **¡La confianza de sonreír sin miedo al mundo!** 😁
+
