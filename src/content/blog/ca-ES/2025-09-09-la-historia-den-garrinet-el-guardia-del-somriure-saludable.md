@@ -17,7 +17,7 @@ Des de petit, en Garrinet sempre va ser un porquet curiós, amb un somriure bril
 
 Amb la seva bata de doctor, el seu raspall de dents gegant i les seves ulleres rodones, en Garrinet es va convertir en **l’ambaixador de la salut bucodental**. No era només una cara simpàtica, sinó també un educador incansable que viatjava per tot Catalunya per ensenyar als més petits (i als grans també) com raspallar-se correctament les dents, evitar les llaminadures que les fan malbé i cuidar la seva higiene bucal amb passió.
 
-En Garrinet ben aviat es va unir a l’**Associació d’Higienistes Bucodentals de Catalunya (HIDEs Catalunya)**, un grup d’experts compromesos amb la promoció de la salut dental. Junts, van començar a organitzar tallers i campanyes per conscienciar sobre la importància de les revisions periòdiques al dentista i de mantenir hàbits saludables per a un somriure radiant.
+En Garrinet ben aviat es va unir a l’**Associació dels Professionals d’Higienistes Bucodentals de Catalunya (APHICAT)**, un grup d’experts compromesos amb la promoció de la salut dental. Junts, van començar a organitzar tallers i campanyes per conscienciar sobre la importància de les revisions periòdiques al dentista i de mantenir hàbits saludables per a un somriure radiant.
 
 Amb la seva presència, en Garrinet es va guanyar l’afecte de tothom. Sempre acompanyat del seu inconfusible somriure i del seu entusiasme per ensenyar, es va convertir en un símbol de la **prevenció i el cura dental**. A cada ciutat i poble que visitava, les persones reien, aprenien i, el més important, començaven a cuidar millor les seves dents!
 
